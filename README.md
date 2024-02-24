@@ -5,7 +5,7 @@
 - 📫 How to reach me... you CaN't - just kidding you can e-mail me on dbzvegetassj@outlook.com (yes it is a real adress that I use)
 
 The thing goe skrrrra 
-Sta'e kreti
+Sta'e
 
 <!---
 zacinC/zacinC is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
