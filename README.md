@@ -2,9 +2,9 @@
 - 👀 I’m interested in MANY THINGS xD...
 - 🌱 I’m currently learning MANY THINGS xD...
 - 💞️ I’m looking to collaborate on MANY THINGS xD...
-- 📫 How to reach me... you CaN't - just kidding you can e-mail me on dbzvegetassj@outlook.com (yes it is a real adress that I use)
+- 📫 How to reach me... you CaN't - just kidding you can e-mail me at dbzvegetassj@outlook.com (yes it is a real address that I use)
 
-The thing goe skrrrra 
+The thing goes skrrrra 
 Sta'e
 
 <!---
